@@ -1,3 +1,5 @@
+![ezgif-5-e87ffd49df](https://github.com/user-attachments/assets/b66ff3b1-29c8-4030-8d42-4cb727c0dca4)
+
 ## Hi there 👋
 
 # 💫 About Me:
